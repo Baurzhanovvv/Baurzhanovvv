@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **related to my stack**
 
-- 📫 How to reach me **https://t.me/buttmanfff**
+- 📫 How to reach me **https://t.me/baurzhanovvvvvv**
 
 
 <h3 align="left">Languages and Tools:</h3>
